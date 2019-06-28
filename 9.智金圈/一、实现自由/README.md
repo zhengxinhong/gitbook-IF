@@ -1,0 +1,6 @@
+态度不够
+不行实现财务自由
+
+第一课
+
+https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc291cmNlX3R5cGUiOjMsInJlc291cmNlX2lkIjoidl81YTY5ODRmN2FkOGNlX1c1VkRRczBTIiwiYXBwX2lkIjoiYXBwYmpzMmM5amcxMzc2IiwicHJvZHVjdF9pZCI6InBfNWE2OTgxZjc4MzA2ZV9qeEJTN1pHRyJ9
