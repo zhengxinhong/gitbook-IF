@@ -16,3 +16,13 @@ http://pc-shop.xiaoe-tech.com/appbjs2c9jg1376/video_details?id=v_5a6c04b4816ae_4
 
 
 https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc291cmNlX3R5cGUiOjMsInJlc291cmNlX2lkIjoidl81YTZjMDRiNDgxNmFlXzRrM0VNcVNtIiwiYXBwX2lkIjoiYXBwYmpzMmM5amcxMzc2IiwicHJvZHVjdF9pZCI6InBfNWE2OTgxZjc4MzA2ZV9qeEJTN1pHRyJ9
+
+
+第四课
+
+http://pc-shop.xiaoe-tech.com/appbjs2c9jg1376/video_details?id=v_5a6c062e6650b_69BSQFc3
+
+https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc291cmNlX3R5cGUiOjMsInJlc291cmNlX2lkIjoidl81YTZjMDYyZTY2NTBiXzY5QlNRRmMzIiwiYXBwX2lkIjoiYXBwYmpzMmM5amcxMzc2IiwicHJvZHVjdF9pZCI6InBfNWE2OTgxZjc4MzA2ZV9qeEJTN1pHRyJ9
+
+
+
