@@ -40,7 +40,7 @@ https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc2
 成功和自由和借口不在同一屋檐下
 一不小心就平凡了
 金奴追求安全，其实是最求安全感。
-
+创业是一条不归路
 
 成本会计   管理会计
 
