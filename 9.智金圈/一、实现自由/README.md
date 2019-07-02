@@ -32,3 +32,15 @@ https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc2
 第六课
 
 https://wx58501d669db7d34b.h5.xiaoe-tech.com/content_page/eyJ0eXBlIjoiMiIsInJlc291cmNlX3R5cGUiOjMsInJlc291cmNlX2lkIjoidl81YTZkNmFiYzUxNGNlX29iTm1DS1ljIiwiYXBwX2lkIjoiYXBwYmpzMmM5amcxMzc2IiwicHJvZHVjdF9pZCI6InBfNWE2OTgxZjc4MzA2ZV9qeEJTN1pHRyJ9
+
+
+
+
+敢于面对未来的自己
+成功和自由和借口不在同一屋檐下
+一不小心就平凡了
+金奴追求安全，其实是最求安全感。
+
+
+成本会计   管理会计
+
